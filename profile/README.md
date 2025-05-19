@@ -1,4 +1,4 @@
-## KINO Final Destination 6 (2025) Ganzer Fil𝐦 Deutsch
+## KINO~HD Final Destination 6 (2025) Ganzer Fil𝐦 Deutsch
 
 ### .github
 
