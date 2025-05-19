@@ -1,4 +1,4 @@
-## KINO Final Destination 6 (2025) Ganzer
+## KINO Final Destination 6 (2025) Ganzer Fil𝐦
 
 ### .github
 
