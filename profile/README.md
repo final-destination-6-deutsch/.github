@@ -1,4 +1,4 @@
-## KINO Final Destination
+## KINO Final Destination 6 (2025)
 
 ### .github
 
