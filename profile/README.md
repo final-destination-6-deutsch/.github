@@ -1,4 +1,4 @@
-## KINO
+## KINO Final
 
 ### .github
 
